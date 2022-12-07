@@ -1,4 +1,4 @@
-<img src="https://i.ibb.co/4dmcwQc/new.jpg">
+<img src="https://i.ibb.co/3Snwkhc/19964884-6183214.jpg">
 
 ## :mailbox: Reach me out
 
